@@ -1,0 +1,1 @@
+# 8sinif-deney-x-turkce-soru-bankasi-32
